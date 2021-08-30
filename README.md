@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @camiladelavalle
-- 👀 I’m interested in your mum
+- 👀 I’m interested in WHAT IS THIS IDK I ONLY HAVE TO MAKE A HTML AND I DON'T KNOW HOW TO DO IT HELPPP
 - 🌱 I’m currently learning about how to cook eggs
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me idk
