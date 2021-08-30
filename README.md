@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @camiladelavalle
 - 👀 I’m interested in your mum
-- 🌱 I’m currently learning about how to cook pizza
+- 🌱 I’m currently learning about how to cook eggs
 - 💞️ I’m looking to collaborate on nothing
 - 📫 How to reach me idk
 
